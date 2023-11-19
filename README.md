@@ -1,5 +1,3 @@
-- 👋 Hi, I’m @arhaamwanii
-
 Open for Collabrations
 
 Reach out: arhaaamw@gmail.com (its triple a)
