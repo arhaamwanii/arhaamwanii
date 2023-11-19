@@ -1,6 +1,7 @@
 - 👋 Hi, I’m @arhaamwanii
-Currently learning React
+
 Open for Collabrations
+
 Reach out: arhaaamw@gmail.com (its triple a)
 
 <!---
